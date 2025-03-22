@@ -1,0 +1,1 @@
+# admin.shoppingnest3.0
